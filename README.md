@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @testimodz
-- 👀 I’m interested in genshin impact
+- 👀 I’m playing Wuthering Waves and Toram Online
 - 🌱 I’m currently learning android studio
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
